@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @musthub
-- 👀 I’m interested in knowlsdge
+- 👀 I’m interested in knowledge
 - 🌱 I’m currently learning about it
 - 💞️ I’m looking to collaborate on some project
 - 📫 How to reach me the good things
